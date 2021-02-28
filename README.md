@@ -1,1 +1,0 @@
-# admaku.github.io
